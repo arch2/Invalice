@@ -306,7 +306,7 @@ We roll initiative!!!!!
     Ohm learns about the history of the stone and can tell it’s a mixture of sand and limestone, is much lighter than it appears, he notices two giant hammers etched into the walls.  Bro investigates the maps, he strings together that this mission was a side quest.  Names and dates are from 3 months ago.  Bro does a history check and learns something but decides to keep it to himself and says he hasn’t found anything.  Ohm searches for an entrance and all of a sudden his shield starts to react. FIN
 </details>
 
-## Session 10
+## Session 11
 > 1/25/22
 <details open>
 <summary><i>The Forgotten</i></summary>
