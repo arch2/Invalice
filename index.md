@@ -717,7 +717,7 @@ We roll initiative!!!!!
 	Ohm looked into the portal but he saves his Wis Check. Ohm CRITS his SW for 16 fire damage on the mouth. The galleon unloads another barrage of balls at us. We roll for doom, TT, Jam, and Bro all gain another doom. We all do another Con Save, only Bro passes, everyone else takes 16 poison damage. The galleon hits the tentacle a bunch, and it goes slowly back into the portal, the voice sounds exactly like Triggan. Everyone but Bro does a Dex save, only Fur is falling into the water. Everyone else falls onto rocks. TT, Fur, and Jam are unconscious, Ohm takes 10 damage, Mer just uses Slow Fall and takes no damage. WHO WILL SURVIVE??? CATCH US NEXT WEEK. FIN
 </details>
 
-## Session 15
+## Session 25
 > 6/7/22
 <details open>
 <summary><i>Half and Half</i></summary>
