@@ -49,6 +49,7 @@ Group gold/currency
 - [Session 36](#session-36)
 - [Session 37](#session-37)
 - [Session 38](#session-38)
+- [Session 39](#session-39)
 
 ### Player Characters
 
@@ -954,4 +955,8 @@ Cap B attacks Mer and whiffs twice.  FM misses on Mog. Tentacle 1 hits Mog for 1
 
 > ## Session 39
 
-> 2/11/22? *TBD*
+> 2/28/22 *Low Tide*
+
+> ## Session 40
+
+> 3/11/22 *TBD*
