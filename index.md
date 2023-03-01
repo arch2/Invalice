@@ -957,6 +957,8 @@ Cap B attacks Mer and whiffs twice.  FM misses on Mog. Tentacle 1 hits Mog for 1
 
 > 2/28/22 *Low Tide*
 
+We are fighting Alfonso, the Brosuns, and the Tentacles.  Furtim is up first, he is still below deck and he can see the tentacles from the cannon holes, he chucks a cannonball at T1 and it makes the cannon hole bigger and hits for 9 damage.  Jamison uses his magic daggers to attack Cap A, both of them hit for a total of 39 damage, he steps on the dead body in front of him to help leap in the air and both daggers enter the lungs of Cap A and he collapses DED. 
+
 > ## Session 40
 
 > 3/11/22 *TBD*
