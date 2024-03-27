@@ -60,6 +60,7 @@ Group gold/currency
 - [Session 47](#session-47)
 - [Session 48](#session-48)
 - [Session 49](#session-49)
+- [Session 50](#session-50)
 
 ### Player Characters
 
@@ -1140,4 +1141,18 @@ We all come back down the mountain to the town we were in before. Mermista wakes
 
 From what we can judge, it seems like this town is a small merchant stop town for people to use as a rest stop. Mermista (17 perc) continues to feel a small westerly pull on her arm. Ohm checks the ember of grox (13 arcana) feeling an all over pressure that doesn’t point him towards anything. Mogali  goes shopping! For normal, ordinary Mogali things. Takes a “small” amount of gold to do so. The rest of the crew starts ordering Irish carbombs at the tavern. Ohm observes the shit out of the bar with a solid 25. No sign of the Queens flag or other propaganda. A very fancy, but not too fancy looking ranger is in the bar. They seem very knowledgeable and a good source of information. We do not talk to them and instead the party continues to drink. Jameson haggels with a veteran bartender over the costs of the drinks. Mermista, disguised as an old lady, tells the barkeep we are her family and we are traveling to the beach so she can see it one last time before she dies. Also she’s poor. The barkeep lets us know there are Elves to the West. Ew. They aren’t really welcoming, but they aren’t not welcoming either. We are really trying to get a free drink out of this.
 
-Mogali is spending *money*  
+Mogali is spending *money*. I’m looking for a big hat. Like, right on the border of comically too large, but not quite. I need more ponchos and robes. Lots more trinkets and bobs. I said “Spirits Be Praised” upon seeing the hat of my dreams and hear a light giggle. The kobold knows where I can get some dweth. Bill Bob Burrow rips me off but I dont have time to deal with him. He has a cousin in Everthorn city, named Zim, gives me a coin with a thumbs up and says Zim will help me out. 
+
+Back in the bar. Party reunited. Mogali changes into their new digs. Looks fresh as hell. The lady in the bar compliments my hat. She’s a real one. Her name is Cyndel. I introduce our merry band as the Problem Solvers, Inc. aka. The ProblemS. We always solve more problems then we leave. THE Gregory Trueshot is her grandfather! Shes trying to spread the Trueshot name. There is a drug trade in this town she calls home, the town of Evergreen.
+
+The business man, is checking out our wagon, looks at us and forces us to interact with him. His name is Walter Cantenbury, aka the Whip, he cracks his whip a few times just like his namesake. He “looks out” for the town and gets people to agree with him apparently. Not getting a good vibe from him for real. He keeps gangs from forming and is clearly not sexist as men and women can be criminals. Ohm rolls 11 on insight and believes that the Whip is being honest about keeping the town on the up and up. My word! The local wells have been drying up. They are on their 3rd well in 4 years, no good. A right shame. He keeps saying he whips people into shape. They have “deep roots” in Everthorn city and apparently that is a joke we will understand later. 
+
+This town is full of characters!
+
+The kobold I met earlier wont take me to the drug dealer straight up, so instead he’ll act as a middle man. I ask Jameson to to tail him so we can get some more details. He reluctantly does so. The kobold goes to a town fountain, then to a market place like area to meet a very fashionably armored greaser apparently. The drug dealer seems even more reluctant than Jameseon, does not want to sell Mogali drugs (boo). He doesn't like that we were talking to Cyndel apparently. 
+
+We went to a local Inn to spend the night and got some free drinks from Walter. We partied with the service staff in the back bar most of the night and Kevin the Kobold hooked us up with rooms.
+
+> ## Session 50
+
+> 3/26/24 ???
