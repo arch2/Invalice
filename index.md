@@ -59,6 +59,7 @@ Group gold/currency
 - [Session 46](#session-46)
 - [Session 47](#session-47)
 - [Session 48](#session-48)
+- [Session 49](#session-49)
 
 ### Player Characters
 
@@ -1137,4 +1138,6 @@ Mogali dreams and he meets up with the mysterious figure again, the figure is sq
 
 We all come back down the mountain to the town we were in before. Mermista wakes to a tug on her arm towards the west. We collectively decide to head out on this hunch to the west. We use the map we found on the dead bodies to know the areas marked on the map to avoid altercations. Mogali takes the helm to drive the wagon with Furtim in shotgun seat. Mogali stanks. Like, reeks from not changing their clothes for weeks. With a 15 (14+1 shotgun bonus) Mogali gets our donkeys to peel rubber on the tires and get a lot of speed, getting to town by late afternoon. Jamison works to disguise Ohm (18 very tall, looks super human), Jamison (20 looks human), Mermista (18 old lady), and Bronson (23 made him look fat). Furtim changes to look like a traveling merchant. We arrive at a small town in the afternoon with a low wall around the town.
 
-From what we can judge, it seems like this town is a small merchant stop town for people to use as a rest stop. Mermista (17 perc) continues to feel a small westerly pull on her arm. Ohm checks the ember of grox (13 arcana) feeling an all over pressure that doesn’t point him towards anything. Mogali  goes shopping! For normal, ordinary Mogali things. Takes a “small” amount of gold to do so. The rest of the crew starts ordering Irish carbombs at the tavern. Ohm observes the shit out of the bar with a solid 25. No sign of the Queens flag or other propaganda. 
+From what we can judge, it seems like this town is a small merchant stop town for people to use as a rest stop. Mermista (17 perc) continues to feel a small westerly pull on her arm. Ohm checks the ember of grox (13 arcana) feeling an all over pressure that doesn’t point him towards anything. Mogali  goes shopping! For normal, ordinary Mogali things. Takes a “small” amount of gold to do so. The rest of the crew starts ordering Irish carbombs at the tavern. Ohm observes the shit out of the bar with a solid 25. No sign of the Queens flag or other propaganda. A very fancy, but not too fancy looking ranger is in the bar. They seem very knowledgeable and a good source of information. We do not talk to them and instead the party continues to drink. Jameson haggels with a veteran bartender over the costs of the drinks. Mermista, disguised as an old lady, tells the barkeep we are her family and we are traveling to the beach so she can see it one last time before she dies. Also she’s poor. The barkeep lets us know there are Elves to the West. Ew. They aren’t really welcoming, but they aren’t not welcoming either. We are really trying to get a free drink out of this.
+
+Mogali is spending *money*  
