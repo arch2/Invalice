@@ -1247,7 +1247,7 @@ After arguing the price of rooms for much too long, our cheapskate boss Jameson 
 
 We are forever lost
 
-> ##Session 53
+> ## Session 53
 
 > 6/25 A day in the shade
 
@@ -1308,7 +1308,7 @@ Bro looks for speak with animal potions from a Tiefling (I like seeing the Tiefl
 
 Everyone finds themselves in the communal area….but where is Mermista…. *Dia out*
 
-> ##Session 56
+> ## Session 56
 
 > 8/20: Which floor?
 
@@ -1317,10 +1317,10 @@ As a group we decide to head back to the Rose Thorn where we spent the last nigh
 Scratch that, Jamison is sending Claudio to go into Amira’s office, transformed into a small (cute?) fly. Jamison by Claudio (2 perception) is blinded by greenhouse gasses? Claudio then just lands on the window and sees Amira in there talking. Suddenly Jamison loses connection to Claudio. Jamison loses it and says he's gonna go drink (3 cons saving - very drunk). Jamison starts to stealth (13). Ohm goes up to the office, knocks on the door and asks where our watery friend is. Ohm tells them about (deception -1) what happened in our room. The guard welcomes us in and asks us what we are here for. Amira feigns ignorance on our only female party member. Amira has been nervously eyeing her guards with beads of sweat dripping down her brow. The guards seem to keep whispering into some sending stones. Ohm casts silence on the room, while Bronson knocks a bookcase in front of the door making no sound. We roll INITIATIVE. Furtim casts suggestion on Amira, telling her it's in her best interest to help us clean this up, Amira resists it saying “I’ll handle my own business thank you very much.” Amira attacks one of the guards with her daggers. One of the guards makes two attacks on Ohm (18 and 23) and both miss. Another guard makes two attacks on Furtim (10 and 11) both misses. Bronson (23 hit) attacks a guard and reveals a mithril armor doing no damage. Bronson’s second swing also misses. Ohm (arcana check) notices some magical effect is happening to everyone in the room. Cut to Jamison just brooding like a weirdo at the bar. Furtim casts two eldritch blasts (14 and 21) both miss. Amira exclaims “cover me” while she runs upstairs. Guard A makes two attacks with a longbow on Amira hitting her once in the shoulder. The guard near Furtim hits Furtim twice (7 + 12 damage). Bronson attempts to attack twice and fails again. Ohm swings again missing and attempts to shove him to the ground knocking him prone. Back to Jamison’s best ever roleplay revolving around the imaginary cat temporarily dying. Furtim shoots two eldritch blasts one hits for 3 damage. Amira grabs an orb, throws it down and shouts “destroy this!” The guard shoots two arrows directly into Amira’s chest, badly wounding her. The second guard gets up from prone and makes two attacks on Furtim dealing 12 damage. Bronson makes an attack on the orb dealing 14 damage to it. The orb starts to spew out a stream of blue light, Bronson (dex save 10) withstands the force from the expulsion of energy. Bronson deals another 13 damage to the orb, (dex save 19) heavily cracking the orb. Ohm shoots the orb with his crossbow 4 damage. Everyone makes a dex saving throw and takes damage (Fur-5, Bronson-5,Ohm-10) as the orb explodes. Jamison drunkenly decides to head to the room and tries to push open the doors, noticing it's barricaded. Jamison (12 strength) tries to push through the doors and attempts to talk but notices no sound is coming out. Jamison telepathically reaches out to Ohm, Ohm updates Jamison what happened. Furtim casts two eldritch blasts, one landing doing 9 damage. Bronson swings twice, both hitting, shoving his sword down the guard's throat, blending his insides. Bronson then surges to attack the first guard twice, ending him as well. Bronson does the same execution as the first guard but from the other human end hole. 
 Ohm casts mass cure wounds on everyone in the party for 12. Amira gets up and pulls the arrows out of her chest. “What took you so long” - she says. Bronson asks about what the orb was about, Amira says that it was like a super defense system. Amira tells us Thaum has Mermista captured. 
 
-> ##Session 57
+> ## Session 57
 
 >9/?? ??
 
-> ##Session 58
+> ## Session 58
 
 > 10/?? ??
